@@ -1,2 +1,1 @@
-# cuiyixin555.github.io
-Homepage of CUI Xin
+[https://cuiyixin555.github.io/](https://cuiyixin555.github.io/)
